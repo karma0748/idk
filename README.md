@@ -1,2 +1,2 @@
 # idk
-bald i guess
+soon i guess
